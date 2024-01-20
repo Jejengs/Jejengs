@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jejengs
+- 👋 Hi, I’m @Jengs.tea
 - 👀 I’m interested in blockchain
 - 🌱 I’m currently learning blockchain
  my oshi oca
